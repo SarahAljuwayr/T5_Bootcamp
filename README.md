@@ -1,1 +1,1 @@
-There is all about of Zeham Management Bootcamp (T5)
+There is all about Zeham Management Bootcamp (T5)
